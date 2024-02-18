@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Bandon-G
+- 👋 Hi, I’m @Brandon-G
 - 👀 I’m interested in Dev and being a ux/ui designer 
 - 🌱 I’m currently learning about a digital school for digital opportunities at SAYNA
 - 📫 How to reach me : brandongael098@gmail.com
